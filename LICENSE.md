@@ -1,4 +1,4 @@
-# 
+# Premium Sejda PDF scripts para Mac OS | Avançado Sejda PDF scripts para PC Windows. Com aplicativos móveis e reembolsos — otimizado para máximo desempenho em cada plataforma.
 
 
 
